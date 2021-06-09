@@ -1,1 +1,2 @@
-# tanayamane.github.io
+Tanaya Mane 
+<1> Journaller 
